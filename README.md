@@ -1,1 +1,1 @@
-# tuesthurs
+# tuesthurs - the best cohort!
